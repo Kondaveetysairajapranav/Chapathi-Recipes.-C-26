@@ -1,0 +1,1 @@
+Roti is simplest bread that is made everyday in Indian households. It is made with only 2 ingredients- atta (the wheat flour) and water. Some people add salt, some add oil but in my house it was always made with these 2 ingredients only. Like I said, it is the simplest form of bread.  
